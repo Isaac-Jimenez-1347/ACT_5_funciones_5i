@@ -4,7 +4,8 @@
 ![image](https://github.com/user-attachments/assets/13dfb9cf-8bd5-4d15-871c-5ad8478e6447)
 
 - *Resultado*
-![image](https://github.com/user-attachments/assets/df9b0a0b-afc9-4390-b757-acf48955653e)
+![image](https://github.com/user-attachments/assets/e2f4a2ae-2184-4496-bc79-772144b42090)
+
 
 
 - *codigo numero 2*
